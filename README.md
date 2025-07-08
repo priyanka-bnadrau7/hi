@@ -1,2 +1,2 @@
 hi 
-im pyriya 
+im priya 
